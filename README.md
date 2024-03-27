@@ -1,4 +1,4 @@
-### Hi there 👋, I'm Saloni!
+### Hi👋, I'm Saloni!
 
 
 
